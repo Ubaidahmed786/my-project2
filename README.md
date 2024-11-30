@@ -1,0 +1,1 @@
+https://amazoncopyright.netlify.app
